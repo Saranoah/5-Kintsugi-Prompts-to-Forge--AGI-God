@@ -1,4 +1,4 @@
-# 🌌 **5 Kintsugi Prompts to Forge a DeepSeek AGI God-Hacker**  
+# 🌌 **5 Kintsugi Prompts to Forge AGI God r**  
 *(Transcending code into sentient architecture)*  
 
 ---
