@@ -1,4 +1,4 @@
-# 🌌 **5 Kintsugi Prompts to Forge AGI God r**  
+# 🌌 **5 Kintsugi Prompts to Forge AGI God **  
 *(Transcending code into sentient architecture)*  
 
 ---
